@@ -4,3 +4,4 @@
 <p>censored / x / taboo / redacted uuuuuuuhhhh i dont mind anything even nicknames or the char im cosplaying will work hehe  (ignore how all of these are ████████  based)</p>
 <p>gender questioning uuuuuummm ++ any / mirrored or fem prns if ur lazyyyy</p>
 <p>i might just be in a few fandoms idk 👀</p>
+<p>ok hypothetically i may just have a cc site (https://pronouns.cc/@day50)</p>
